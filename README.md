@@ -7,8 +7,8 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently studying at Reva university.
 - 🌱 I’m currently learning engineering.
-- 👯 I’m looking to collaborate with poeple who would like to teach/help me coding
+- 👯 I’m looking to collaborate with poeple who would like to teach/help me  with coding
 - 💬 Ask me about general knowledge
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: hands-on learning
+- ⚡ Fun fact: i'll keep u entertained.....
 
